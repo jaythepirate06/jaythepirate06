@@ -5,7 +5,7 @@
 - 📫 How to reach me 7653585105
 
   45 Married With Partner looking to Have Good Times:
-- ⚡ Fun fact: 9in
+- ⚡ Text First.
 
 <!---
 jaythepirate06/jaythepirate06 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
